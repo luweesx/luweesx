@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @luweesx
 - 👀 I’m interested in computers; software; hardware; coding, etc.
 - 🌱 I’m currently learning cybersecurity basics.
-- 💞️ I’m looking to working on a personal home lab as a hobby.
+- 💞️ I’m looking forward to working on a personal home lab as a hobby as well as furthering my knowledge in tech.
 - 📫 How to reach me IG: @luweesx
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I want a pet snake.
